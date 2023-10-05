@@ -1,4 +1,5 @@
 ### Hi there 👋
+Passionate youth worker and marketing and management student with a dream to promote progressive values and make a positive impact on the world.
 
 <!--
 **covekizaideje/covekizaideje** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
